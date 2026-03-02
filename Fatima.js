@@ -1,5 +1,5 @@
 Fatima Guliyeva
 Bdu
-Sabah
+salam
 Code.edu.az
 
